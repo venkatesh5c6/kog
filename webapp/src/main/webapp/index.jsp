@@ -4,4 +4,4 @@ nanda
 srinu
 ravi
 venkat
-       present list of mar 27
+six members are the present list of mar 27
